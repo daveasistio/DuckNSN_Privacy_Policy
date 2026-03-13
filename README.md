@@ -73,7 +73,7 @@ We may update this Privacy Policy from time to time. We will notify users of any
 If you have questions about this Privacy Policy, contact us at:
 
 **Sparky Group LLC**
-Email: support@sparkygroup.com
+Email: sparkygroupllc@gmail.com
 
 ---
 
